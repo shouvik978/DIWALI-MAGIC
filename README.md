@@ -1,0 +1,2 @@
+# DIWALI-MAGIC
+Diwali celebration
